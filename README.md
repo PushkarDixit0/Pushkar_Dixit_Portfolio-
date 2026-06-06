@@ -226,9 +226,6 @@ To work as a Full Stack Developer where I can contribute to impactful products, 
 
 [Github](https://github.com/PushkarDixit0).
 
-### Email
-
-[Mail](pushkardixit28@gmail.com)
 
 ---
 
