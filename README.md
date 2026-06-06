@@ -220,15 +220,15 @@ To work as a Full Stack Developer where I can contribute to impactful products, 
 
 ### LinkedIn
 
-[www.linkedin.com/in/pushkar-dixit-953140246](http://www.linkedin.com/in/pushkar-dixit-953140246)
+[Linkedin](https://www.linkedin.com/in/mr-pushkar-dixit/)
 
 ### GitHub
 
-github.com/PushkarDixit0
+[Github](https://github.com/PushkarDixit0).
 
 ### Email
 
-[your-email@example.com](mailto:your-email@example.com)
+[Mail](pushkardixit28@gmail.com)
 
 ---
 
